@@ -1,2 +1,2 @@
-# RusherHackCrack
+# RusherHack Crack
 RusherHack Cracked
